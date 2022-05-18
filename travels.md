@@ -1,0 +1,1 @@
+While I've many fond travel memories, I feel my favorite experience has yet to come! I predict my and my husband's "Honeymoon 2.0" will be one of my all time favorite travel memories :) hopefully that's happening in 2023 or 2024!
